@@ -114,3 +114,6 @@
 114. http://updatetribun.org/ImIbfUhSt
 115. http://travelwithtricks.me/?r=aHR0cDovL3BsYW50YWhlaW0ud2ViLmlkLz9yPWFIUjBjSE02THk5M2QzY3lNaTU2YVhCd2VYTm9ZWEpsTG1OdmJTOTJMMWhDWldKVmRVWmhMMlpwYkdVdWFIUnRiQT09
 116. http://suarankri.me/nZaN1a
+117. https://tricksthat.com/
+118. https://gamingcool.com/
+119. https://gamingcools.com/
